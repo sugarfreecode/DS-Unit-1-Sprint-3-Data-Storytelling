@@ -61,3 +61,10 @@ Could you do a new topic, with the same "style"?
 
 Where could you search for data about your topic?
 
+
+# Assignment!
+
+Fill out the above template *twice*, for two different ideas.
+
+Then compare and contrast and select one as the idea you're leaning towards
+working on for your project week.
